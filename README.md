@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GabShaver, a content and creative marketer
+- 👋 Hi, I’m @GabShaver, a content and creative marketer and freelancer
 - 👀 I’m interested in cooking, wellness, and Netflix
 - 🌱 I'm constantly learning and bettering my craft
 - 📫 How to reach me gabshav.services@gmail.com
